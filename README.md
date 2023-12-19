@@ -1,5 +1,5 @@
 ### Hello, nice to meet you! I'm Daiane 👩‍💻
-📚 I'm an Information Systems and Public Administration undergraduate student.<br/>
+📚 I'm an Public Administration undergraduate student.<br/>
 📍 Based in Florianópolis, Brazil.
 
 <br/>
